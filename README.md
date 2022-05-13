@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shazaib Mohammed
-- 👀 I’m interested in coding, basketball, golf, and fitness
+- 👀 I’m interested in coding, basketball, fitness, and anime :)
 - 🌱 I’m currently learning computer science at Wilfrid Laurier University
 - 💞️ I’m looking to collaborate on any new innovative and exciting projects!
 - 📫 How to reach me, my email is shazaib.m2099@gmail.com
